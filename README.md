@@ -36,12 +36,24 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. The Remaines of Iane Gilbert.
+1. TO THE RIGHT HONORABLE EDWARD LORD VISCOVNT CONAWAY, AND •ILVLTA, BARON OF RADGLEY MARSHALL OF IRELAND, AND ONE OF HIS Majeſties Moſt Honourable Privie Councell of 〈◊〉.
+
+1. EPITAPH. AND A DEFENCE OF IT.
+
+    _ The Remaines of Iane Gilbert.
+
+1. TO THE DISCONSOLATE AND SORROWFVLL FRIENDS OF IANE GILBERT DECEASED: WILLIAM GILBERT WISHETH TRVE COMFORT OVT OF GODS WORD.
+
+1. TO THE SEEKER OF COMFORT, NOT READER ONLY.
+
+1. A GENERALL REPRESENTATION OF THE Method of this Manuell Scarce halfe a handfull: but with Gods bleſſing it may be a whole Heart-full of Comfort., or rather Cordiall of Comfort, containing the Ingredients of Five Sermons.
 
 #####Body#####
-Architectonice consolationis: or, The art of building comfort occasioned by the death of that religi
+1 Theſ. 4. 18.Wherefore Comfort one another with theſe words.MAY it pleaſe your Attention to begin w
+1. An Electuary in forme of a Prayer called Apothecaries have an Electuary called Manus Christi.Manus Chriſtiani: a comfortable Confection out of the former Treatiſe to repell the Infection of all kinde of Affliction.
+
 #####Back#####
-Architectonice consolationis: or, The art of building comfort occasioned by the death of that religi
+Imprimatur.Iohannes Hanſley.Feb. 4. Anno Dom. 1639.
 **Types of content**
 
   * There are 4 **verse** lines!
